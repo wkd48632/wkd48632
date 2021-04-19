@@ -11,6 +11,7 @@ a.k.a. wkd48632, invJ.
 - Technological singularity
 - Algorithm optimization
 - FPGA
+- Automation
 
 ### I'm currently learning
 - Graphics library (OpenGL, Vulkan, SDL, WebGL)
