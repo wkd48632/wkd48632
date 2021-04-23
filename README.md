@@ -7,6 +7,7 @@ P != NP. So all programs are born sick and your life has meaning.
 
 I want to get rid of technical and productive obstacles.
 I want humans to work for humans.
+
 Humans will study combinations that make chicken taste better.  
 Humans will study how to comfortably pet a cat.  
 Humans will study how can more respect each other.  
