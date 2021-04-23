@@ -1,6 +1,20 @@
 # inventor Jang
 a.k.a. wkd48632, invJ.
 
+### Zen
+```
+P != NP. So all programs are born sick and your life has meaning.  
+I want to get rid of technical and productive obstacles. I want humans to work for humans.
+
+Humans will study combinations that make chicken taste better.  
+Humans will study how to comfortably pet a cat.  
+Humans will study how can respect each other.  
+My project will help with that.
+
+Destiny is beckoning. 
+God, allow me to do this
+```
+
 ### Languages available
 - C
 - C++ like C...
