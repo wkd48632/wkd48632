@@ -9,9 +9,9 @@ I want to get rid of technical and productive obstacles.
 I want humans to work for humans.
 Humans will study combinations that make chicken taste better.  
 Humans will study how to comfortably pet a cat.  
-Humans will study how can respect each other.  
+Humans will study how can more respect each other.  
 As an art, not a boring work.
-My project will help with that.
+My projects will help with that.
 
 Destiny is beckoning. 
 God, allow me to do this!
