@@ -21,4 +21,9 @@ like step on water is the safest in water, value of my money will not be dominat
 
 I will not be afraid to learn.
 I will be a learning machine.
+
+I will focus on eternal things.
+My brain is for long-lasting knowledge.
+Fuck the Galapagos that will last short.
+I don't be a slave of something, to more throwing myself.
 ```
