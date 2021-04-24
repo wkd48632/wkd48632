@@ -29,5 +29,5 @@ I don't be a slave of something, to more throwing myself.
 
 I'll create a huge amount of project.
 I'll make money with it, and there must be someone imitate me soon.
-But I don't worry about. The grown world will support me.
+But I don't worry about it. The grown world will support me.
 ```
