@@ -15,8 +15,8 @@ Destiny is beckoning.
 God, allow me to do this!
 
 I want to contribute for humanity.
-To do that, I'll exercise.
-I'll earn a lot of money and spend it all for developing myself.
+To do that, I'll exercise for my health.
+I'll earn money and spend it all for developing myself.
 like step on water is the safest in water, my value will not be dominated by the economy.
 It just goes through me.
 
@@ -34,7 +34,7 @@ But I don't worry about it. The grown world will support me.
 
 Every my single step is too great, so that when I do it my jobs all done, the money system will collapse.
 So I don't worry about the money. it will always be generously given.
-The entrepreneurs are my employee. They'll do hard works to chasing money.
+There is a lot of smart people in the world. They will do my job together.
 
 All technologies must be shared with humanity and free to use. 
 ```
