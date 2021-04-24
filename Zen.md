@@ -17,7 +17,8 @@ God, allow me to do this!
 I want to contribute for humanity.
 To do that, I'll exercise.
 I'll earn a lot of money and spend it all for developing myself.
-like step on water is the safest in water, value of my money will not be dominated by the economy.
+like step on water is the safest in water, my value will not be dominated by the economy.
+It just goes through me.
 
 I will not be afraid to learn.
 I will be a learning machine.
