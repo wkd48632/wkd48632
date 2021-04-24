@@ -26,4 +26,8 @@ I will focus on eternal things.
 My brain is for long-lasting knowledge.
 Fuck the Galapagos that will last short.
 I don't be a slave of something, to more throwing myself.
+
+I'll create a huge amount of project.
+I'll make money with it, and there must be someone imitate me soon.
+But I don't worry about. the grown world will support me.
 ```
