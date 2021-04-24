@@ -26,7 +26,7 @@ I will be a learning machine.
 I will focus on eternal things.
 My brain is for long-lasting knowledge.
 Fuck the Galapagos that will last short. That's for speculator.
-I don't be a slave of something, to more throwing myself.
+I don't be a slave of something .
 
 I'll create a huge amount of project.
 I'll make money with it, and there must be someone imitate me soon.
