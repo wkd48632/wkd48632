@@ -34,7 +34,7 @@ But I don't worry about it. The grown world will support me.
 
 Every my single step is too great, so that when I do it my jobs all done, the money system will collapse.
 So I don't worry about the money. it will always be generously given.
-The entrepreneurs are my employee. They'll just do worthless works to chasing money.
+The entrepreneurs are my employee. They'll do hard works to chasing money.
 
 All technologies must be shared with humanity and free to use. 
 ```
