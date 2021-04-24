@@ -25,7 +25,7 @@ I will be a learning machine.
 
 I will focus on eternal things.
 My brain is for long-lasting knowledge.
-Fuck the Galapagos that will last short.
+Fuck the Galapagos that will last short. That's for speculator.
 I don't be a slave of something, to more throwing myself.
 
 I'll create a huge amount of project.
